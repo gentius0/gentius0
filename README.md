@@ -2,7 +2,7 @@
 - 👀 I’m interested in community management
 - 🌱 I’m currently learning security and knowledge techs.
 - 💞️ I’m not looking to collaborate on now but I will.
-- 📫 How to reach me ... via twitterr or my mail.
+- 📫 How to reach me ... via twitter (@RealSea6) or my mail.
 
 Thanks for reading. Let's build together. gentius0
 
